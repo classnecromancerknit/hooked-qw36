@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with hooked Scripts rare, the #1 Script. Includes god mode and teleport for unbeatable performance.
 
 
 
